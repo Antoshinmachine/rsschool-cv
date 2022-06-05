@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Antoshinmachine.github.io/rsschool-cv/cv
